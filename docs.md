@@ -5,4 +5,4 @@ toothbrush from Amazon.
 Note that this toothbrush is completely safe to use for children,
 adults, pets, wildlife, and trees.
 
-A similar product can be purchased on Temu.
+Purchase its companion waterpick on Temu.
